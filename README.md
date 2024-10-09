@@ -1,0 +1,1 @@
+¡Bienvenidos a mi página web dedicada a los estudios! Aquí encontrarás recursos, guías, y herramientas para facilitar tu aprendizaje y ayudarte a alcanzar tus metas académicas. Ya sea que estés buscando consejos, materiales de estudio o motivación, estás en el lugar correcto. ¡Explora, aprende y sigue creciendo!
